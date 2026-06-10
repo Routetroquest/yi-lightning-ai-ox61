@@ -1,4 +1,4 @@
-# 
+# Gratuito Yi-Lightning temas. Con grafos de conocimiento y implementación de modelos — optimizado para el máximo rendimiento y eficiencia.
 
 
 
